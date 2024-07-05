@@ -10,7 +10,7 @@ Estou pronta para abraçar novas oportunidades e desafios na área de tecnologia
 ### Educação:
 
 - Bacharelado em Engenharia Civil | UNORP | Conclusão Dezembro 2014
-- Bacharelado em Análise de Desenvolvimento de Sistemas | Unip | Conclusão em Junho/2023
+- Bacharelado em Análise de Desenvolvimento de Sistemas | Unip | Conclusão em Junho/2024
 
 
 ### Habilidades
